@@ -1,1 +1,0 @@
-# Team-Manipal-Racing-Website
